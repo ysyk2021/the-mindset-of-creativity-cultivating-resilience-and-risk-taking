@@ -1,4 +1,4 @@
-Chapter 2: Understanding the Mindset of Creativity: Identifying the Components of a Creative Mindset
+Identifying the Components of a Creative Mindset
 ====================================================================================================
 
 In this chapter, we will explore the mindset of creativity and identify the components of a creative mindset. Developing a creative mindset involves embracing uncertainty, taking risks, and experimenting with new ideas and approaches.

@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges in Creativity: Addressing Fear of Failure and Negative Self-Talk
+Addressing Fear of Failure and Negative Self-Talk
 ===============================================================================================================
 
 Fear of failure and negative self-talk can be significant obstacles to creativity. They can prevent individuals from taking risks, trying new things, and embracing change. In this chapter, we will explore strategies for addressing fear of failure and negative self-talk in order to unlock greater creative potential.

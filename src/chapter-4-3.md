@@ -1,4 +1,4 @@
-Chapter 4: Tools and Techniques for Creative Thinking and Innovation: Leveraging Technology and Collaboration for Innovation
+Leveraging Technology and Collaboration for Innovation
 ============================================================================================================================
 
 In this chapter, we will explore tools and techniques for creative thinking and innovation, specifically leveraging technology and collaboration for innovation.

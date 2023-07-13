@@ -1,4 +1,4 @@
-Chapter 7: Measuring Success in Creativity: Analyzing and Interpreting Data on Creativity
+Analyzing and Interpreting Data on Creativity
 =========================================================================================
 
 Measuring success in creativity requires the establishment of clear metrics and key performance indicators (KPIs) that are relevant to the specific context and goals of the project. However, simply tracking these metrics and KPIs is not enough. It's also important to analyze and interpret the data collected to gain insights into areas of success and areas that need improvement.

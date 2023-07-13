@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Purpose and Scope of the Book
+Purpose and Scope of the Book
 ======================================================
 
 In this chapter, we will introduce the purpose and scope of the book "The Mindset of Creativity: Cultivating Resilience and Risk-Taking". This book is designed to help individuals develop a creative mindset that promotes innovation and success in today's rapidly changing world.

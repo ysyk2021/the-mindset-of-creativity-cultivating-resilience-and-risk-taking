@@ -1,4 +1,4 @@
-Chapter 7: Measuring Success in Creativity: Metrics and Key Performance Indicators (KPIs) for Creativity
+Metrics and Key Performance Indicators (KPIs) for Creativity
 ========================================================================================================
 
 Measuring success in creativity can be a challenging task. Unlike traditional business metrics such as revenue or profit margins, creativity is often subjective and difficult to quantify. However, by establishing metrics and key performance indicators (KPIs) for creativity, individuals and organizations can better track their progress and measure the impact of their creative efforts.

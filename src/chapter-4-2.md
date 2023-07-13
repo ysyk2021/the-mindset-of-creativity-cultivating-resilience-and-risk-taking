@@ -1,4 +1,4 @@
-Chapter 4: Tools and Techniques for Creative Thinking and Innovation: Incorporating Design Thinking and Prototyping Into the Creative Process
+Incorporating Design Thinking and Prototyping Into the Creative Process
 =============================================================================================================================================
 
 In this chapter, we will explore tools and techniques for creative thinking and innovation, specifically incorporating design thinking and prototyping into the creative process.

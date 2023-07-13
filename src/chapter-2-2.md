@@ -1,4 +1,4 @@
-Chapter 2: Understanding the Mindset of Creativity: Recognizing the Connection Between Creativity and Resilience
+Recognizing the Connection Between Creativity and Resilience
 ================================================================================================================
 
 In this chapter, we will explore the connection between creativity and resilience. Developing a creative mindset involves taking risks, experimenting with new ideas and approaches, and learning from failure, which are all essential components of resilience.

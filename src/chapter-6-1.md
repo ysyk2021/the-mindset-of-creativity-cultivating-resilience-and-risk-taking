@@ -1,4 +1,4 @@
-Chapter 6: Applying Creativity Across Different Areas of Life: Using Creativity for Entrepreneurship and Business Ventures
+Using Creativity for Entrepreneurship and Business Ventures
 ==========================================================================================================================
 
 Entrepreneurship and business ventures require a great deal of creativity, as they involve taking risks and finding innovative solutions to problems. By applying creativity in these areas, entrepreneurs can develop unique products and services that stand out in the market. Creative thinking can also help entrepreneurs identify new opportunities and adapt to changing market conditions.

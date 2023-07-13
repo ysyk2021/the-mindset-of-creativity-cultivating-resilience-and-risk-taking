@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: Recap of Key Points
+Recap of Key Points
 ==========================================
 
 In this book, we have explored the mindset of creativity and how it can be cultivated through resilience and risk-taking. We have discussed the importance of embracing failure, taking calculated risks, and developing a growth mindset to enhance creativity. Additionally, we have provided strategies for applying creativity across different areas of life, including personal development, entrepreneurship, and social justice.

@@ -1,4 +1,4 @@
-Chapter 7: Measuring Success in Creativity: Continuously Improving Creative Approaches and Mindsets
+Continuously Improving Creative Approaches and Mindsets
 ===================================================================================================
 
 In this chapter, we will explore the importance of measuring success in creativity and continuously improving creative approaches and mindsets.

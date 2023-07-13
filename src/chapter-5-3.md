@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges in Creativity: Managing Creative Burnout and Overwhelm
+Managing Creative Burnout and Overwhelm
 =====================================================================================================
 
 In this chapter, we will explore the challenges and obstacles that can arise when cultivating a creative mindset, including creative burnout and overwhelm. We will also provide practical strategies for managing these challenges and continuing to cultivate a creative mindset.

@@ -1,4 +1,4 @@
-Chapter 4: Tools and Techniques for Creative Thinking and Innovation: Using Brainstorming and Ideation Techniques for Creative Problem-Solving
+Using Brainstorming and Ideation Techniques for Creative Problem-Solving
 ==============================================================================================================================================
 
 In this chapter, we will explore tools and techniques for creative thinking and innovation, specifically using brainstorming and ideation techniques for creative problem-solving.

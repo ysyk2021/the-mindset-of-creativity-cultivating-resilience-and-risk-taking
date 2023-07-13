@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges in Creativity: Navigating Resistance to Change and Innovation
+Navigating Resistance to Change and Innovation
 ============================================================================================================
 
 Creativity often involves taking risks, trying new things, and embracing change. However, resistance to change and innovation can pose significant obstacles and challenges to the creative process. In this chapter, we will explore strategies for overcoming resistance to change and innovation and navigating obstacles and challenges in creativity.

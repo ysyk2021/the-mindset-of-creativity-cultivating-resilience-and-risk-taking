@@ -6,5 +6,4 @@ We explore the importance of developing a growth mindset and reframing negative 
 
 Whether you're an entrepreneur, artist, or simply looking to cultivate your creativity, "The Mindset of Creativity" offers valuable insights and strategies for unlocking your full potential. By developing a growth mindset and taking calculated risks, you can cultivate resilience and unlock your inner creativity to achieve success and fulfillment in all areas of your life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.

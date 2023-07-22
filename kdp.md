@@ -12,24 +12,23 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-1. Creativity
-2. Resilience
-3. Risk-taking
-4. Growth mindset
-5. Innovation
-6. Overcoming obstacles
-7. Failure
-8. Positive psychology
-9. Self-improvement
-10. Personal development
-11. Mindfulness
-12. Success
-13. Entrepreneurship
-14. Leadership
-15. Motivation
-16. Problem-solving
-17. Inspiration
-18. Confidence
-19. Goal-setting
-20. Learning from mistakes
-
+1. Creativity mindset
+2. Resilient creativity
+3. Risk-taking mindset
+4. Cultivating creativity
+5. Creative resilience
+6. Embracing risk in creativity
+7. Developing a creative mindset
+8. Fostering creative thinking
+9. The art of risk in creativity
+10. Nurturing creative resilience
+11. Taking creative risks
+12. Mindful creativity
+13. Innovation and risk-taking
+14. Building a resilient creative mindset
+15. Overcoming creative challenges
+16. Embracing failure in creativity
+17. Growth mindset for creativity
+18. Creative problem-solving
+19. Risk-aware creativity
+20. Adapting creativity in uncertainty

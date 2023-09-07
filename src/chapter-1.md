@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we will introduce the book "The Mindset of Creativity: Cultivating Resilience and Risk-Taking" and explore the importance of creativity in life and work. We will also discuss the benefits of developing a creative mindset and provide an overview of the purpose and scope of the book.
 

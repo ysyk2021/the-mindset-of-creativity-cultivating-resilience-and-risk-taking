@@ -1,6 +1,3 @@
-# Addressing Fear of Failure and Negative Self-Talk
-
-## Introduction
 
 In this chapter, we will explore the detrimental effects of fear of failure and negative self-talk on creativity. We will delve into the root causes of these mental barriers and discuss strategies to address and overcome them. By cultivating resilience and promoting a growth mindset, individuals can unlock their creative potential and embrace risk-taking.
 

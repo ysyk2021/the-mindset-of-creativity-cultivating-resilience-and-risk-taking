@@ -1,5 +1,3 @@
-Developing a Bias for Action and Iteration
-===================================================================================================
 
 In this chapter, we will explore strategies for developing a creative mindset, specifically developing a bias for action and iteration.
 

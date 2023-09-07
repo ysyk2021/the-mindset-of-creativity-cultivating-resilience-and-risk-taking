@@ -1,5 +1,3 @@
-Chapter 6: Applying Creativity Across Different Areas of Life
-=============================================================
 
 In this chapter, we will explore how creativity can be applied across different areas of life. Whether you are an entrepreneur, a student, or simply looking to enhance your personal growth, creativity can help you achieve your goals and lead a more fulfilling life.
 

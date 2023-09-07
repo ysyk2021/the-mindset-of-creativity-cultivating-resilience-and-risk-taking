@@ -1,5 +1,3 @@
-Practicing Curiosity and Openness to New Ideas
-=======================================================================================================
 
 In this chapter, we will explore strategies for developing a creative mindset, specifically practicing curiosity and openness to new ideas.
 

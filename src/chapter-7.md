@@ -1,5 +1,3 @@
-Chapter 7: Measuring Success in Creativity
-==========================================
 
 Measuring success in creativity can be a challenging task, as it often involves subjective and qualitative measures. However, by establishing clear metrics and key performance indicators (KPIs), individuals and organizations can better track their progress and measure the impact of their creative efforts. Additionally, analyzing and interpreting data on creativity can provide valuable insights into areas of success and areas that need improvement.
 

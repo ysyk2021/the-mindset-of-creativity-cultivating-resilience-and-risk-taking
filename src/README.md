@@ -1,4 +1,4 @@
-# Introduction
+
 
 "The Mindset of Creativity: Cultivating Resilience and Risk-Taking" is a guidebook for anyone looking to unlock their creative potential and achieve greater success in their personal and professional lives. In this book, you will learn how to cultivate resilience and take calculated risks that can lead to innovation and growth.
 
@@ -7,3 +7,7 @@ We explore the importance of developing a growth mindset and reframing negative 
 Whether you're an entrepreneur, artist, or simply looking to cultivate your creativity, "The Mindset of Creativity" offers valuable insights and strategies for unlocking your full potential. By developing a growth mindset and taking calculated risks, you can cultivate resilience and unlock your inner creativity to achieve success and fulfillment in all areas of your life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

@@ -1,5 +1,3 @@
-Creating a Framework for Risk-Taking and Experimentation
-============================================================================================================
 
 In this chapter, we will explore the mindset of creativity and how to create a framework for risk-taking and experimentation. Developing a creative mindset involves embracing uncertainty, taking risks, and experimenting with new ideas and approaches.
 

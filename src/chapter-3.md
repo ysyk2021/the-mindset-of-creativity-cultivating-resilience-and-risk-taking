@@ -1,5 +1,3 @@
-Chapter 3: Strategies for Developing a Creative Mindset
-=======================================================
 
 In this chapter, we will explore strategies for developing a creative mindset. A creative mindset is essential for success in today's rapidly changing world and involves practicing curiosity and openness to new ideas, encouraging divergent thinking and idea generation, and developing a bias for action and iteration.
 

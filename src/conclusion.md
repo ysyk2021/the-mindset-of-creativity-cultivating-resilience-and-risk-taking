@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we have explored the mindset of creativity and strategies for cultivating resilience and risk-taking. We have discussed the importance of embracing failure, taking calculated risks, and developing a growth mindset to overcome challenges and achieve creative success. In this final chapter, we will recap key points and provide final thoughts and recommendations.
 

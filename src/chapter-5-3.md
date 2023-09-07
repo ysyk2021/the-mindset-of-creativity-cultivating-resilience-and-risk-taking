@@ -1,6 +1,3 @@
-# Managing Creative Burnout and Overwhelm
-
-## Introduction
 
 In the previous chapters, we explored various aspects of creativity and how to develop a creative mindset. However, creativity can sometimes lead to burnout and overwhelm if not managed effectively. In this chapter, we will delve into strategies for managing creative burnout and overwhelm, enabling individuals to maintain their creative energy and continue thriving in their creative endeavors.
 

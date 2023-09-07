@@ -1,5 +1,3 @@
-Encouraging Divergent Thinking and Idea Generation
-===========================================================================================================
 
 In this chapter, we will explore strategies for developing a creative mindset, specifically encouraging divergent thinking and idea generation.
 

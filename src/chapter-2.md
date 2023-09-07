@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Mindset of Creativity
-==================================================
 
 In this chapter, we will explore the mindset of creativity and how it can be cultivated to develop resilience and risk-taking. Developing a creative mindset involves identifying the components of a creative mindset, recognizing the connection between creativity and resilience, and creating a framework for risk-taking and experimentation.
 

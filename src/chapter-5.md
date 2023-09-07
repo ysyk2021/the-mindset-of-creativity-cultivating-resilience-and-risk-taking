@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles and Challenges in Creativity
-============================================================
 
 In this chapter, we will explore common obstacles and challenges that individuals face in creativity and provide strategies for overcoming them.
 

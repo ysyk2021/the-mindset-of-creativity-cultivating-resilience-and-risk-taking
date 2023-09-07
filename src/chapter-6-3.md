@@ -1,5 +1,3 @@
-Using Creativity for Social Justice and Community Involvement
-============================================================================================================================
 
 Creativity can be applied across a wide range of areas in life, including personal development, entrepreneurship, and business ventures. However, creativity can also be used as a powerful tool for social justice and community involvement. In this chapter, we will explore how creativity can be used to address social issues and create positive change in communities.
 

@@ -1,5 +1,4 @@
-Chapter: Applying Creativity for Personal Development and Fulfillment
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

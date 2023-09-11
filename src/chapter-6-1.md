@@ -1,5 +1,4 @@
-Chapter: Using Creativity for Entrepreneurship and Business Ventures
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
